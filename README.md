@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently Studying *BCA [Bachelor of Computer Applicatios]*
 
-- 📫 How to reach me *chiru.jcl.1004@gmail.com*
+- 📫 How to reach me *bhushanbharath582@gmail.com*
 
 - 📄 Know about my experiences [Click Here](https://drive.google.com/file/d/1QrhIAB-rU331IhoESKFaDfQj7dEH17np/view?usp=sharing)
 
